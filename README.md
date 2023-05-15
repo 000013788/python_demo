@@ -1,1 +1,1 @@
-github is boring.
+github is boring!
